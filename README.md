@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Aljur
+- 👀 I’m interested in Programming
